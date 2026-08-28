@@ -1,0 +1,1 @@
+UPARTE HQ assets for partner preview.
